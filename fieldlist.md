@@ -1,0 +1,157 @@
+Acidic Downpour
+Advanced Dark
+//Amazoness Village
+Amorphous Persona
+Ancient City - Rainbow Ruins
+Ancient Forest
+Archfiend Palabyrinth
+Aroma Garden
+Array of Revealing Light
+Augmented Heraldry
+B.E.F. Zelos
+Black Garden
+//Brain Research Lab
+Bug Matrix
+//Canyon
+Castle Link
+Catalyst Field
+Catapult Zone
+Celestia
+Centrifugal Field
+Chaos Zone
+Chicken Game
+Chorus of Sanctuary
+Chronomaly City Babylon
+Clear World
+Clock Tower Prison
+//Closed Forest
+Colosseum - Cage of the Gladiator Beasts
+Crystolic Potential
+Curse of the Shadow Prison
+Cyberdark Inferno
+Cynet Universe
+Dark City
+Dark Sanctuary
+Defense Zone
+Deskbot Base
+Dinomic Powerload
+Divine Wind of Mist Valley
+Domain of the True Monarchs
+//Dragon Ravine
+Dragonic Diagram
+Dreamland
+Dueltaining
+Empowerment
+Encounter with the Starrelic
+Extra Net
+Fallen Paradise
+Fire King Island
+//Forest
+Fortissimo the Mobile Fortress
+Fusion Gate
+Fusion Recycling Plant
+Future Visions
+//Gaia Power
+//The Gates of Dark World
+Gateway to Chaos
+//Geartown
+Ghostrick Mansion
+//Ghostrick Museum
+Ghostrick Parade
+The Grand Spellbook Tower
+//Harpies' Hunting Ground
+Hexatellarknight
+The Hidden City
+Ignition Phoenix
+Iron Core Specimen Lab
+//Jurassic World
+//Karakuri Showdown Castle
+Kozmotown
+Kyoutou Waterfront
+Laser Qlip
+//A Legendary Ocean
+Lemuria, the Forgotten City
+Light Barrier
+Lost World
+Luminous Spark
+//Madolche Chateau
+Magical Citadel of Endymion
+Magical Meltdown
+Magical Mid-Breaker Field
+Magnetic Field
+Majesty's Pegasus
+Malefic World
+Mausoleum of White
+//Mausoleum of the Emperor
+Megaroid City
+Meklord Fortress
+Metamorformation
+Metaphys Factor
+Molten Destruction
+//Morphtronic Map
+Mound of the Bound Creator
+Mount Sylvania
+//Mountain
+//Mystic Plasma Zone
+Naturia Forest
+Necrovalley
+Neo Space
+Noble Knights of the Round Table
+The Nordic Lights
+Ojama Country
+Onomatopia
+Oracle of Zefra
+Otherworld - The "A" Zone
+PSY-Frame Circuit
+Pacifis, the Phantasm City
+//Pandemonium
+Performapal Dramatic Theater
+Pseudo Space
+Realm of Light
+Revolving Switchyard
+//Rising Air Current
+Ritual Sanctuary
+SPYRAL Resort
+Saber Vault
+The Sanctuary in the Sky
+Sargasso the D.D. Battlefield
+//Savage Colosseum
+Scrap Factory
+The Seal of Orichalcos
+The Seal of Orichalcos
+Secret Village of the Spellcasters
+Shadows Creeping on Starrelic
+Shien's Castle of Mist
+Shiranui Style Synthesis
+//Shrine of Mist Valley
+Sky Iris
+Skyscraper
+Skyscraper 2 - Hero City
+Sogen
+Sorcerous Spell Wall
+Spider Web
+Starlight Junktion
+Summon Breaker
+Super Quantal Mech Ship Magnacarrier
+Symph Amplifire
+Temple of the Six
+Toon Kingdom
+Triamid Cruiser
+Triamid Fortress
+Triamid Kingolem
+Trickstar Light Stage
+U.A. Stadium
+//Umi
+//Umiiruka
+Union Hangar
+//Vampire Kingdom
+Venom Swamp
+Void Expansion
+//Wasteland
+Wattcastle
+Wetlands
+Xyz Override
+//Xyz Territory
+//Yami
+Zodiac Sign
+//Zombie World
