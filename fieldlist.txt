@@ -1,4 +1,4 @@
-Acidic Downpour
+//Acidic Downpour
 Advanced Dark
 //Amazoness Village
 Amorphous Persona
@@ -117,7 +117,6 @@ The Sanctuary in the Sky
 Sargasso the D.D. Battlefield
 //Savage Colosseum
 Scrap Factory
-The Seal of Orichalcos
 The Seal of Orichalcos
 Secret Village of the Spellcasters
 Shadows Creeping on Starrelic
